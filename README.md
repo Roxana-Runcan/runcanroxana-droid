@@ -21,7 +21,7 @@ Currently engaged in NGO data projects via CorrelAid.
 -
 
 
--  discovered the data analytics field as I was managing a café in Berlin during the pandemic and I was hooked
+-  Discovered the data analytics field as I was managing a café in Berlin during the pandemic and I was hooked
 -  I'm naturally curious
 -  Love a good cup of filter coffee
 -  Have an interest in trading futures markets
